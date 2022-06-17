@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @KhalidOjotu
+- 👀 I’m interested in Website Development
+- 🌱 I’m currently learning Coding
+- 💞️ I’m looking to collaborate With a benefiting partner
+- 📫 Reach me @ ojotukhalid@gmail.com or +2349040090772
